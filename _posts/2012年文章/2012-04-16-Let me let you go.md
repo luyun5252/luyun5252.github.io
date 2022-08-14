@@ -1,0 +1,5 @@
+生活不是小说，亚历克斯，生死只是一瞬间的事。我有次跟我妈在迪利广场吃午饭，一个男人就在我的眼前被撞死了，死在我的怀里。那时我想：那是情人节，怎么可以发生这种事呢？我想到了所有爱他的人，等待他的人，他们都没有机会再看到他了......然后我想：如果没有那个人呢，如果在你的生命中，守候你的那一个人根本就不存在呢？于是我又开车到湖边小屋，试图寻找一个答案，结果让我找到了你，我还迷失了自己。迷失在这美丽的时间黑洞里，但这不是真实的，亚历克斯。我要学着去过真实的生活了。请不要再给我写信了，不要再找我了。释放我也释放你自己吧。
+
+Life is not a book, Alex. And it can be over in a second. I was having lunch with my mother at Daley Plaza...and a man was killed right in front of me. He died in my arms. And I thought "It can't end just like that on Valentine's Day." I thought about all the people who love him, waiting at home...who will never see him again. And then I thought "What if there is no one?" What if you live your whole life and no one is waiting? So I drove to the lake house looking for any kind of answer. And I found you. And I let myself get lost. Lost in this beautiful fantasy where time stood still. But it's not real, Alex. I have to learn to live the life that I have got. Please don't write anymore. Don't try to find me. Let me let you go.
+
+  来自——《the lake house》
